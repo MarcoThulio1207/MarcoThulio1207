@@ -17,4 +17,4 @@
 
 </div>
 
-### Sou estudante de Análise e desenvolvimento de Sistemas pela instituição Una, e busco migrar de área para ser um programador de SUCESSO!🚀
+### Sou estudante de Análise e desenvolvimento de Sistemas pela instituição Una, e busco ser um programador de SUCESSO!🚀
